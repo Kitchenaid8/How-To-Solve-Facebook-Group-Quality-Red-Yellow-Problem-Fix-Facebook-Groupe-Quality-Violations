@@ -2,6 +2,8 @@
 
 How To Solve Facebook Group Quality Red/Yellow Problem | Fix Facebook Groupe Quality Violations
 
+watch tutorial : https://youtu.be/V7yNQQnVbL8
+
 1- download the chrome extension
 
 2- open your Facebook Group
